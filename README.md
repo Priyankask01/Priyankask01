@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **📧 Priyankasksharma01@gmail.com | 📱 (602) 502-4852**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1DgD09mTfBqi6Kh2zjoKnkAexXya793RG/view?usp=sharing](https://drive.google.com/file/d/1DgD09mTfBqi6Kh2zjoKnkAexXya793RG/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1KHylAIzvI82Ax1hN6N7BLmH7-5NfYICE/view?usp=sharing](https://drive.google.com/file/d/1KHylAIzvI82Ax1hN6N7BLmH7-5NfYICE/view?usp=sharing)
 
 - ⚡ Fun fact **I trek and read manga**
 
