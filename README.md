@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Priyanka Sharma</h1>
-<h3 align="center">Business Analyst & Data Science Professional | 5 Years in Analytics, BI & Machine Learning</h3>
+<h3 align="center">Business Analyst & Data Science Professional | 5 Years in Analytics, BI & Data Science</h3>
 
 - 🔭 I’m currently working on **Data Integration & Reporting Automation at Arizona State University**
 
